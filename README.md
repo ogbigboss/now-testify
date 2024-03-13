@@ -27,3 +27,27 @@ Now testify
 Testify
 It's right outside your door
 ```
+
+### A pre-emptive rebuttal to an inevitable riposte
+
+I'll make this argument in more detail later as this situation persists.
+
+That said, an inevitable counter argument to the above is this:
+
+> It's just not a guarantee.
+
+Followed of course by a littany of commentary, references, and multi-syllabic words (maybe in latin) that all come in a self assured, paternal cadence.
+
+In rebuttal, I'll just say this:
+
+> The fact that it isn't a guarantee is exactly the point.
+
+Way too many people are aware of and watching this situation. Many of them are young and likely to take over the reins of the political machines in the near future. The reason you take the risk now is precisely because so many are watching.
+
+You take the risk to make change, even when it is not a guarantee, such to inspire hope.
+
+Yes, damn right, you can. We can. The otherside spent decades taking all kinds of pot shots at all levels and eventually, it got them success.
+
+And this time, if you don't, everyone watching - not the public, not the American people, just everyone you actually care about - will realize you care more about the hollow nature of unearned celebrity, celebrity without cultural influence, you care more about this than making actual change.
+
+Yes, damn right, we can. And we should. For if we don't, too many will shy away from the basic motivation that allows for the risk which gives us change: hope.
