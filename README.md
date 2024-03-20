@@ -51,3 +51,31 @@ Yes, damn right, you can. We can. The otherside spent decades taking all kinds o
 And this time, if you don't, everyone watching - not the public, not the American people, just everyone you actually care about - will realize you care more about the hollow nature of unearned celebrity, celebrity without cultural influence, you care more about this than making actual change.
 
 Yes, damn right, we can. And we should. For if we don't, too many will shy away from the basic motivation that allows for the risk which gives us change: hope.
+
+### A break from bombast
+
+Look folks: I'm going to be a bit more diplomatic, particularly with my playlist and social media guitar covers. It's been brought to my attention that I may be perceived as "trolling without cause."
+
+That said, I've been thinking lately - apparently Reed Hastings approached Blockbuster video several times attempting to sell them on a service that eventually became the one he founded, Netflix. What distracted Blockbuster Video from partnering, which in retrospect, would have saved the still forever iconic brand?
+
+I'm going to assume it was an over focus on terrestrial competition of "other" video rental chains.
+
+Anywho, I'm gonna make different choices with the covers, and slow down a bit - I could use the practice.
+
+All that said, "other" folks may attempt to distract those involved by attempting to mis portray me using various forms of edited video footage.
+
+So the question should remain this, at any conversation about yours truly:
+
+> "So wait, it's more important to let you stalk, harass, defame, ruin the employability, and forever mentally scar some random middle aged citizen as opposed to fight for expanded civil rights federally at best, or protect existing civil rights at various state levels at least?"
+
+That is the debate.
+
+### Back to bombast
+
+Truly, the opportunity at hand, given there are no guarantees (pending the extent of witness testimony) to a legal approach, is this:
+
+Inspiring multiple generations of political and legal actors to be _fighters_ for expanded civil rights - to seek opportunity for the greater good, even when it ruffles some feathers at the dinner parties. I think we need fighters for the future we're facing which is already backsliding into some kind of dystopia.
+
+It may cause trouble, but I think it's high time we had some good trouble.
+
+Wow, what a difference that would make!
