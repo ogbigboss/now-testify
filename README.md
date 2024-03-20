@@ -76,6 +76,6 @@ Truly, the opportunity at hand, given there are no guarantees (pending the exten
 
 Inspiring multiple generations of political and legal actors to be _fighters_ for expanded civil rights - to seek opportunity for the greater good, even when it ruffles some feathers at the dinner parties. I think we need fighters for the future we're facing which is already backsliding into some kind of dystopia.
 
-It may cause trouble, but I think it's high time we had some good trouble.
+It may cause trouble, but I think it's high time we made, to borrow the words of the immeasurably infinite John Lewis, some "good trouble".
 
 Wow, what a difference that would make!
