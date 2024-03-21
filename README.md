@@ -79,3 +79,32 @@ Inspiring multiple generations of political and legal actors to be _fighters_ fo
 It may cause trouble, but I think it's high time we made, to borrow the words of the immeasurably infinite John Lewis, some "good trouble".
 
 Wow, what a difference that would make!
+
+### A slight recap of the opportunities
+
+So, I'm pretty sure a Reality TV show was being filmed in New York involving me, and footage of it was shared with copious people despite the show defaming me and being filmed without my consent.
+
+New York privacy laws wouldn't have much to say here, but California laws would say that the whole thing, especially the sharing of the footage, would be seen as... bad.
+
+If it can be proven that the content was shared with or within the state of California, or at least routed through computers located in that area, I'd say we have an interesting case to expand privacy laws in an extremely broad way given the crossing of state lines.
+
+In the scope of protecting public shareholder interests, I'd prefer this to be a case where it's one last name against another; I think we all know that. I'm not sure if it's possible, and I will not twist anyone's gilded arms into testifying, though that would happen in the best of worlds. ~~Perhaps in this not so best of worlds, muse taxes can instead be considered.~~
+
+...
+
+However, in the separate but related situation where my privacy was invaded based on a medical justification which could not be proven by medical professionals in an standard medically ethical way, there raises the question as to whether a precedent can be established preventing the invasion of privacy based on or concerning medical issues.
+
+It's probably more impactful to certain recently lost federal protections. Even if it cannot reach a federal hearing, it would at least provide a precedent for future cases to expand and relate to.
+
+That said, I don't need this lawsuit to be one last name against others.
+
+To the "doctors" involved and yes perhaps most responsible for this fiasco, here's my suggestion:
+
+There's a high likelihood that your medical malpractice insurance is connected to your taxable identity, which for many psychiatrist types, is probably just your last name(s). This is unfortunate as a lawsuit here may just end up in the hands of the Supreme Court, and thus a matter for history if not at the very least headlines.
+
+If you hurry up and change your EIN associations to something generic, then the lawsuit that occurs will be my last name vs. your newly established taxable identity, protecting your family's last names and futures from being maligned as working against expanding civil rights in the scope of medical ethics, something I'm sure you agree to broadly, were your careers not to be at risk.
+
+Think it over! Even if the IRS doesn't accept your new tax identity in time for me to sue you, I'll still do you a solid and sue you based on the new identity and not your last names, should that be the case. I'm sure it'll all work out in the end.
+
+(in a voice hearkening back to the vaudevillian "aristocrats" joke): Diplomacy!
+
