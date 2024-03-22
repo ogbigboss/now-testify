@@ -15,10 +15,14 @@ And PS - I'm going to make sure my legal team is led by the opposite of Atticus 
 Without further adieu, the pseudonyms:
 
 1. Citizen Celebutaunt
-1. Snotboogie
 1. Citizen Snotboogie
-1. S. Undenlee Seymour
+1. Detective Firestarter
+1. S. Uddenlee Seymour
 1. The Witch of Wall St.
 1. Citizen Wasn't The One
 1. The Matadorkus
 1. M.G. Glenanne-Axe-Porter-Westen
+1. The Devil's Sweetest Disco Thing
+1. Bad Karma
+1. Silent Shanana A. Fox
+1. Cherlock Moby Madden Maynard Keynes Ultra Effort Cashney Geek (C.M.M.M.K. Ultra E.C.G.)
