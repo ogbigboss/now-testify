@@ -48,8 +48,10 @@ Without further adieu, the pseudonyms:
 
 1. --
 1. K. Smith
+1. Government Focker
+1. Citizen Negotiator
 1. --
-1. --
-1. --
-1. --
+1. Citizen Set It Off
 1. G. Weiners
+1. --
+1. Citizen Wag the Dogs
