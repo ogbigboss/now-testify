@@ -88,7 +88,7 @@ New York privacy laws wouldn't have much to say here, but California laws would 
 
 If it can be proven that the content was shared with or within the state of California, or at least routed through computers located in that area, I'd say we have an interesting case to expand privacy laws in an extremely broad way given the crossing of state lines.
 
-In the scope of protecting public shareholder interests, I'd prefer this to be a case where it's one last name against another; I think we all know that. I'm not sure if it's possible, and I will not twist anyone's gilded arms into testifying, though that would happen in the best of worlds. ~~Perhaps in this not so best of worlds, muse taxes can instead be considered.~~
+In the scope of protecting public shareholder interests, I'd prefer this to be a case where it's one last name against a pseudonym; I think we all know that. I'm not sure if it's possible, and I will not twist anyone's gilded arms into testifying, though that would happen in the best of worlds. ~~Perhaps in this not so best of worlds, muse taxes can instead be considered.~~
 
 ...
 
@@ -96,15 +96,28 @@ However, in the separate but related situation where my privacy was invaded base
 
 It's probably more impactful to certain recently lost federal protections. Even if it cannot reach a federal hearing, it would at least provide a precedent for future cases to expand and relate to.
 
-That said, I don't need this lawsuit to be one last name against others.
+That said, I don't need this lawsuit to be one last name against pseudonym.
 
 To the "doctors" involved and yes perhaps most responsible for this fiasco, here's my suggestion:
 
 There's a high likelihood that your medical malpractice insurance is connected to your taxable identity, which for many psychiatrist types, is probably just your last name(s). This is unfortunate as a lawsuit here may just end up in the hands of the Supreme Court, and thus a matter for history if not at the very least headlines.
 
-If you hurry up and change your EIN associations to something generic, then the lawsuit that occurs will be my last name vs. your newly established taxable identity, protecting your family's last names and futures from being maligned as working against expanding civil rights in the scope of medical ethics, something I'm sure you agree to broadly, were your careers not to be at risk.
+If you hurry up and change your EIN associations to something generic, then the lawsuit that occurs will be my pseudonym vs. your newly established taxable identity, protecting your family's last names and futures from being maligned as working against expanding civil rights in the scope of medical ethics, something I'm sure you agree to broadly, were your careers not to be at risk.
 
 Think it over! Even if the IRS doesn't accept your new tax identity in time for me to sue you, I'll still do you a solid and sue you based on the new identity and not your last names, should that be the case. I'm sure it'll all work out in the end.
 
 (in a voice hearkening back to the vaudevillian "aristocrats" joke): Diplomacy!
 
+### A brief benefit of the doubt
+
+Hey gang! So, something occured to me about my sister's legal team. While it's unclear to me (as is everything in this situation) as to what they _precisely_ said, I've had the inclination that it involved a misrepresentation of the truth to which has triggered a legal disciplinary investigation into said legal team.
+
+Here's the point: I've begun to question, what if my sister's legal team did not feel confident in the argument in question itself? In fact, what if they knew it could backfire insofar as damaging my sister's case for expanded custody given the situation?
+
+What if they formed a legal strategy around risking a misrepresentation of the truth because it was _more important_ to (attempt to) screw me over by "creating hollywood gossip" about me than to serve my sister's best interests as a client, and felt bulletproof to the idea of a legal disciplinary investigation, particularly in a pre-Girardi disbarment California?
+
+Now, I doubt she would hear me out on this, but if others could convince her, would it make my sister interested in testifying towards expanding civil rights? Unfortunately I do not know her very well.
+
+It might be valuable testimony towards one or both of the above, and in one case, might be easier than going with gilded arms, though, it may help to work those gilded arms into nudging my sister as opposed to providing witness testimony themselves in court! ~~Mandatory "redacted" joke about muse taxes~~.
+
+Just some thoughts.
