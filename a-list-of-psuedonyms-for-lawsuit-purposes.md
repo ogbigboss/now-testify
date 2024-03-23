@@ -34,3 +34,9 @@ Without further adieu, the pseudonyms:
 1. Too Petty
 1. Citizen Risky Reading
 1. Resident Red Lobster
+1. President Katana _Person_
+1. The John Mayer of Talking Shit
+1. Lucky at Lawlessness
+1. Citizen Onyour Notright
+1. The Cool Kid's Candlemaker
+
