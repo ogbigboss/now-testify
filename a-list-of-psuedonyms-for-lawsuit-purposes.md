@@ -21,8 +21,15 @@ Without further adieu, the pseudonyms:
 1. The Witch of Wall St.
 1. Citizen Wasn't The One
 1. The Matadorkus
-1. M.G. Glenanne-Axe-Porter-Westen
+1. M.G.N. Glenanne-Axe-Porter-Westen
 1. The Devil's Sweetest Disco Thing
 1. Bad Karma
 1. Silent Shanana A. Fox
 1. Cherlock Moby Madden Maynard Keynes Ultra Effort Cashney Geek (C.M.M.M.K. Ultra E.C.G.)
+1. Resident Red Lobster
+
+---
+
+1. Citizen Funk #4
+1. Too Petty
+1. Citizen Risky Reading

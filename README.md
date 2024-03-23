@@ -88,7 +88,7 @@ New York privacy laws wouldn't have much to say here, but California laws would 
 
 If it can be proven that the content was shared with or within the state of California, or at least routed through computers located in that area, I'd say we have an interesting case to expand privacy laws in an extremely broad way given the crossing of state lines.
 
-In the scope of protecting public shareholder interests, I'd prefer this to be a case where it's one last name against a pseudonym; I think we all know that. I'm not sure if it's possible, and I will not twist anyone's gilded arms into testifying, though that would happen in the best of worlds. ~~Perhaps in this not so best of worlds, muse taxes can instead be considered.~~
+In the scope of protecting public shareholder interests, I'd prefer this to be a case where it's a pseudonym against one last name; I think we all know that. I'm not sure if it's possible, and I will not twist anyone's gilded arms into testifying, though that would happen in the best of worlds. ~~Perhaps in this not so best of worlds, muse taxes can instead be considered.~~
 
 ...
 
@@ -96,7 +96,7 @@ However, in the separate but related situation where my privacy was invaded base
 
 It's probably more impactful to certain recently lost federal protections. Even if it cannot reach a federal hearing, it would at least provide a precedent for future cases to expand and relate to.
 
-That said, I don't need this lawsuit to be one last name against pseudonym.
+That said, I don't need this lawsuit to be a pseudonym against one last name.
 
 To the "doctors" involved and yes perhaps most responsible for this fiasco, here's my suggestion:
 
