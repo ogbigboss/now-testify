@@ -26,10 +26,11 @@ Without further adieu, the pseudonyms:
 1. Bad Karma
 1. Silent Shanana A. Fox
 1. Cherlock Moby Madden Maynard Keynes Ultra Effort Cashney Geek (C.M.M.M.K. Ultra E.C.G.)
-1. Resident Red Lobster
+1. G.P. DeLopittsteen
 
 ---
 
 1. Citizen Funk #4
 1. Too Petty
 1. Citizen Risky Reading
+1. Resident Red Lobster
