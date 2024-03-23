@@ -39,4 +39,17 @@ Without further adieu, the pseudonyms:
 1. Lucky at Lawlessness
 1. Citizen Onyour Notright
 1. The Cool Kid's Candlemaker
+1. R. George
+1. --
+1. The Broke Human in Black
+1. C. Harrington
 
+---
+
+1. --
+1. K. Smith
+1. --
+1. --
+1. --
+1. --
+1. G. Weiners
