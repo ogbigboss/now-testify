@@ -54,4 +54,4 @@ Without further adieu, the pseudonyms:
 1. Citizen Set It Off
 1. G. Weiners
 1. --
-1. Citizen Wag the Dogs
+1. Citizen Wags the Dog
