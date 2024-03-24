@@ -40,13 +40,13 @@ Without further adieu, the pseudonyms:
 1. Citizen Onyour Notright
 1. The Cool Kid's Candlemaker
 1. R. George
-1. --
+1. Citizen White Castle
 1. The Broke Human in Black
 1. C. Harrington
 
 ---
 
-1. --
+1. Citizen Scandal
 1. K. Smith
 1. Government Focker
 1. Citizen Negotiator
@@ -55,3 +55,13 @@ Without further adieu, the pseudonyms:
 1. G. Weiners
 1. --
 1. Citizen Wags the Dog
+1. --
+1. --
+1. --
+1. The Cult of the Carlotta Curse
+
+---
+
+1. --
+1. --
+1. The Citizen who made them all Lime Green Jello
