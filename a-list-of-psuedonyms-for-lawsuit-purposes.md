@@ -53,7 +53,7 @@ Without further adieu, the pseudonyms:
 1. Citizen Culture Clash
 1. Citizen Set It Off
 1. G. Weiners
-1. Citizen El Jefe Grande Vainilla
+1. Citizen Jefx Grande VainIlla
 1. Citizen Wags the Dog
 1. Citizen Whopper Hips
 1. --
