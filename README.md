@@ -121,3 +121,31 @@ Now, I doubt she would hear me out on this, but if others could convince her, wo
 It might be valuable testimony towards one or both of the above, and in one case, might be easier than going with gilded arms, though, it may help to work those gilded arms into nudging my sister as opposed to providing witness testimony themselves in court! ~~Mandatory "redacted" joke about muse taxes~~.
 
 Just some thoughts.
+
+### "The One" Strategy
+
+I'm near certain there's been much talk of stories involving the trope of "the one."
+
+That said, the truth is most of this sordid affair will remain salient as a matter of gossip for years to come amongst many, many people, not just one.
+
+When looking back, for whatever reason - dinner parties, pre or post board room beverage sessions, group chats - whatever - it will be most useful if there is a cut and dry umbrella to which resides atop this story - the truth, as we remember it at least.
+
+Were I to be "the one" that we all reflect on, well, a lot of things wouldn't add up.
+
+> So some snot nosed middle aged computer programmer caused all this gossip? Gossip such that it arrested the attention of nearly every level of Government, the News media, and the Entertainment industry itself?
+
+It would make it hard for such conversations to... end, as I'm sure we're all witnessing now. It just wouldn't ever add up. We'd have to keep discussing it just to try and make any sense of it.
+
+However, what if, when we looked back, the official record pointed to "one" person whose reputation and status in life would already have connected them reasonably to Government, the Entertainment industry, as well as the News media which connects the two to the public? Things would add up easily then.
+
+What if that story was also the pathway to not only expanding civil rights, but to helping a certain Party of many deflect from a previous history of ignoring "ones" that maybe got out of hand in the realm of the Entertainment industry's leadership caste?
+
+It would seem that making sure this story can be resolved by an official record which held "one" person responsible would also be a great way to make sure all future conversations, gossip laden as they will be, can be easily redirected and thus squashed in a way where "one" can serve the many. It would even help to deflect from concerns brought up by past omissions of accountability.
+
+There were and will continue to be many weird stories that, were I to be anything of a focus, would continue to do nothing more than spawn more stories, more gossip.
+
+Or, we can take a tip from this country's founding colonies: _E Pluribus Unum_; meaning "of many, one" in Latin.
+
+Enthusiastic though I am to be known, I'm curbing such an ambition as being anonymous would help make a stronger point for civil rights amongst diversity. However, I'm guessing there's _someone_ whose name everyone already knows.
+
+Cheers!
