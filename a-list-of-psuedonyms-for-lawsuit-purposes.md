@@ -62,11 +62,11 @@ Without further adieu, the pseudonyms:
 
 ---
 
-1. --
-1. --
+1. Citizen Nothing But Troublesome
+1. Citizen Audrey 2.0
 1. The Citizen who made them all Lime Green Jello
-1. --
-1. --
+1. Citizen Bad Seed Data
+1. Citizen Untamed Muse
 1. --
 1. --
 1. --
